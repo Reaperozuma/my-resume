@@ -1,3 +1,3 @@
 # Resume
-You can view:
+You can view here:
 http://anilrana.com/
